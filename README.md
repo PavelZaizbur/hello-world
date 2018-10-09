@@ -1,5 +1,3 @@
 # hello-world
 Why not?
-hjhjj
-hjbhb
-njnk
+Let's get ready to rumble
